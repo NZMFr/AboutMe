@@ -1,3 +1,3 @@
-# hippowatermelon.github.io
+# NZMFr.github.io
 
 some sort of homepage ig
